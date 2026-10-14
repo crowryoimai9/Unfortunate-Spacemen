@@ -231,4 +231,4 @@ Unfortunate Spacemen is the **full free version** of the game, offering all feat
 Get ready to embark on an epic adventure in Unfortunate Spacemen! **Download now and join the battle for survival!**
 
 ---
-**Last updated:** 2026-10-13 22:34:46 UTC
+**Last updated:** 2026-10-14 01:37:41 UTC
